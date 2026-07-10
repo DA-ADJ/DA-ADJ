@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @DA-ADJ
-- 👀 I’m interested in NEUROLOGY, ASTRONOMY,INNOVATION
-- 🌱 I’m currently learning GERMAN, QUANTUM PHYSICS, MACHINE LEARNING
-- 💞️ I’m looking to collaborate on AN AI/VR/AR PROJECT
+- 👋 Hi, I’m Douaa Amina Adjal
+- 👀 I’m interested in Space medicine, intelligent systems, AI and Innovation
+- 🌱 I’m currently learning Deutsch and Machine learning
+- 💞️ I’m looking to collaborate on an AI/VR/AR project
 - 📫 How to reach me EMAIL:douaaaminaadjal@gmail.com
 - 😄 Pronouns: SHE/HER
 - ⚡ Fun fact: I'M SPIRITED) 
